@@ -45,3 +45,7 @@ Intented to promote progress of science and the arts by granting a temporary mon
 - [Copyright Term Extension Act](https://en.wikipedia.org/wiki/Copyright_Term_Extension_Act) (AKA The Mickey Mouse Protection Act)
 - [How Mickey Mouse Keeps Changing Copyright Law](http://artlawjournal.com/mickey-mouse-keeps-changing-copyright-law/)
 - [Amazon Burning Books](http://www.nytimes.com/2009/07/18/technology/companies/18amazon.html)
+
+# L O L
+
+[The DMCA Sucks](https://docs.google.com/presentation/d/1Jnb7uGZfI_VKD5CoVxD5I0FQO2YJL1Bb2HfbcfUZDVM/edit?usp=sharing)
